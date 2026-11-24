@@ -8,7 +8,7 @@ Entry for the [make.fun bounty "The Dog Ate My Homework: Funniest Excuse"](https
 
 ## The excuse
 
-> The homework told me to sit, stay, AND do long division. I draw the line at maths — so I ate the evidence. No witnesses, no worksheet.
+> The homework told me to sit, stay, AND do long division. I draw the line at maths — so I ate the evidence. No witnesses, no worksheet, no long division.
 
 The dog believes it did nothing wrong: the homework overreached — sit and stay are fine, long division is where the dog draws the line — so the evidence had to go.
 
